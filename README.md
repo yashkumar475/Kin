@@ -1,1 +1,1 @@
-https://yashkumar475.github.io/KinFit1/
+https://yashkumar475.github.io/KinFIT/
